@@ -1,0 +1,1 @@
+Tips and tricks, and various assets for the Axis & Allies series of games, especially 1942 2nd ed.
